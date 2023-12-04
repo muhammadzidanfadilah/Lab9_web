@@ -69,12 +69,15 @@
 
 ![KAJA20](https://github.com/muhammadzidanfadilah/Lab9_web/assets/115553474/a8d992eb-1b6a-4de4-b673-d4bf2a38261d)
 
+![KAJA8](https://github.com/muhammadzidanfadilah/Lab9_web/assets/115553474/3cade941-5257-467d-a30f-85029a0c1fba)
+
 # HEADER HAPUS
 
 ![KAJA21](https://github.com/muhammadzidanfadilah/Lab9_web/assets/115553474/1b75bb9a-f70c-48f9-beee-b0d895e0e7ee)
 
 ![KAJA17](https://github.com/muhammadzidanfadilah/Lab9_web/assets/115553474/34ac4f08-5f2e-4438-bc76-61b25ab81c22)
 
-![KAJA22](https://github.com/muhammadzidanfadilah/Lab9_web/assets/115553474/39f44d46-9c3b-4ae7-816b-23b3efb1b44d)
+![aman](https://github.com/muhammadzidanfadilah/Lab9_web/assets/115553474/67d1efc8-d322-4333-b0fd-466b43880a93)
+
 
 
